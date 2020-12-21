@@ -1,0 +1,1 @@
+First,take the dosa batter,put it on the tava and spread it with a spatula.Next,spread a little bit of oil and butter and wait till it heats.After that,take the dosa and flip it. There you have it! It's done. Enjoy the dosa with some chutney or any gravy.
